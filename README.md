@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TechySkills
-- 👀 I’m interested in Computers, Building Computers, Softwares, Mobiles, and Modifyinig the shit outta them.
+- 👀 I’m interested in Computers, Softwares, Mobiles and Modifyinig with new Custom stuff... until they are bricked... :/
 - 🌱 I’m currently in College!
 - 💞️ I’m looking to collaborate on learning Coding, New stuff etc!
 - 📫 How to reach me email me: asktechyskills@gmail.com
